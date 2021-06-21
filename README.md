@@ -27,7 +27,7 @@ I love you so much
 ### What I like to do with my Dad
 1. I love to play catch with my Dad
 2. I like to do do programming with him
-3. I _epecially_ **love, love, love** to 
+3. I _especially_ **love, love, love** to 
 watch movies with him
 
 
